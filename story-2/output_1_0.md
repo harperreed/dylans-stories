@@ -1,6 +1,6 @@
-**Octavia took a deep breath and opened her eyes. The class was still there. She had hoped that somehow closing her eyes would have made them go away. Her eyes darted around the room and saw Mrs. Roger’s smile at her, encouraging her to start her talk. **
+**Octavia took a deep breath and opened her eyes. The class was still there. She had hoped that somehow closing her eyes would have made them go away. Her eyes darted around the room and saw Mrs. Roger’s smile at her, encouraging her to start her talk.**
 
-**It was the first day of 6th grade and, as was usual at the start of a new school year, they were being forced to talk about what they did over their summer vacation. That was the last thing she wanted to talk about. Summer had sucked. **
+**It was the first day of 6th grade and, as was usual at the start of a new school year, they were being forced to talk about what they did over their summer vacation. That was the last thing she wanted to talk about. Sumer had sucked.**
 
 **Her parents had finally gotten a divorce. Which meant no more yelling at each other, not more silent dinners, and no more family. Her best friend, Steve, had tried to make her feel better by telling her she would have two Christmases, but that didn’t help.**
 
@@ -24,9 +24,9 @@ You can reach me at  ezee0226@gmail.com  or on Twitter at @Adze25 .
 
 
 
-**Octavia took a deep breath and opened her eyes. The class was still there. She had hoped that somehow closing her eyes would have made them go away. Her eyes darted around the room and saw Mrs. Roger’s smile at her, encouraging her to start her talk. **
+**Octavia took a deep breath and opened her eyes. The class was still there. She had hoped that somehow closing her eyes would have made them go away. Her eyes darted around the room and saw Mrs. Roger’s smile at her, encouraging her to start her talk.**
 
-**It was the first day of 6th grade and, as was usual at the start of a new school year, they were being forced to talk about what they did over their summer vacation. That was the last thing she wanted to talk about. Summer had sucked. **
+**It was the first day of 6th grade and, as was usual at the start of a new school year, they were being forced to talk about what they did over their summer vacation. That was the last thing she wanted to talk about. Sumer had sucked.**
 
 **Her parents had finally gotten a divorce. Which meant no more yelling at each other, not more silent dinners, and no more family. Her best friend, Steve, had tried to make her feel better by telling her she would have two Christmases, but that didn’t help.**
 
@@ -64,9 +64,9 @@ Years ago her class projector had been broken when a kid passed out one morning 
 
 
 
-**Octavia took a deep breath and opened her eyes. The class was still there. She had hoped that somehow closing her eyes would have made them go away. Her eyes darted around the room and saw Mrs. Roger’s smile at her, encouraging her to start her talk. **
+**Octavia took a deep breath and opened her eyes. The class was still there. She had hoped that somehow closing her eyes would have made them go away. Her eyes darted around the room and saw Mrs. Roger’s smile at her, encouraging her to start her talk.**
 
-**It was the first day of 6th grade and, as was usual at the start of a new school year, they were being forced to talk about what they did over their summer vacation. That was the last thing she wanted to talk about. Summer had sucked. **
+**It was the first day of 6th grade and, as was usual at the start of a new school year, they were being forced to talk about what they did over their summer vacation. That was the last thing she wanted to talk about. Sumer had sucked.**
 
 **Her parents had finally gotten a divorce. Which meant no more yelling at each other, not more silent dinners, and no more family. Her best friend, Steve, had tried to make her feel better by telling her she would have two Christmases, but that didn’t help.**
 
@@ -88,9 +88,9 @@ June kept talking, not really knowing what she was talking about. “At school, 
 
 
 
-**Octavia took a deep breath and opened her eyes. The class was still there. She had hoped that somehow closing her eyes would have made them go away. Her eyes darted around the room and saw Mrs. Roger’s smile at her, encouraging her to start her talk. **
+**Octavia took a deep breath and opened her eyes. The class was still there. She had hoped that somehow closing her eyes would have made them go away. Her eyes darted around the room and saw Mrs. Roger’s smile at her, encouraging her to start her talk.**
 
-**It was the first day of 6th grade and, as was usual at the start of a new school year, they were being forced to talk about what they did over their summer vacation. That was the last thing she wanted to talk about. Summer had sucked. **
+**It was the first day of 6th grade and, as was usual at the start of a new school year, they were being forced to talk about what they did over their summer vacation. That was the last thing she wanted to talk about. Sumer had sucked.**
 
 **Her parents had finally gotten a divorce. Which meant no more yelling at each other, not more silent dinners, and no more family. Her best friend, Steve, had tried to make her feel better by telling her she would have two Christmases, but that didn’t help.**
 
@@ -122,9 +122,9 @@ Octavia stood up quickly, but tripped over her backpack and Brent calling at her
 
 
 
-**Octavia took a deep breath and opened her eyes. The class was still there. She had hoped that somehow closing her eyes would have made them go away. Her eyes darted around the room and saw Mrs. Roger’s smile at her, encouraging her to start her talk. **
+**Octavia took a deep breath and opened her eyes. The class was still there. She had hoped that somehow closing her eyes would have made them go away. Her eyes darted around the room and saw Mrs. Roger’s smile at her, encouraging her to start her talk.**
 
-**It was the first day of 6th grade and, as was usual at the start of a new school year, they were being forced to talk about what they did over their summer vacation. That was the last thing she wanted to talk about. Summer had sucked. **
+**It was the first day of 6th grade and, as was usual at the start of a new school year, they were being forced to talk about what they did over their summer vacation. That was the last thing she wanted to talk about. Sumer had sucked.**
 
 **Her parents had finally gotten a divorce. Which meant no more yelling at each other, not more silent dinners, and no more family. Her best friend, Steve, had tried to make her feel better by telling her she would have two Christmases, but that didn’t help.**
 
@@ -154,9 +154,9 @@ Hours later, blood creeps into twilight, as the last creature touches the branch
 
 
 
-**Octavia took a deep breath and opened her eyes. The class was still there. She had hoped that somehow closing her eyes would have made them go away. Her eyes darted around the room and saw Mrs. Roger’s smile at her, encouraging her to start her talk. **
+**Octavia took a deep breath and opened her eyes. The class was still there. She had hoped that somehow closing her eyes would have made them go away. Her eyes darted around the room and saw Mrs. Roger’s smile at her, encouraging her to start her talk.**
 
-**It was the first day of 6th grade and, as was usual at the start of a new school year, they were being forced to talk about what they did over their summer vacation. That was the last thing she wanted to talk about. Summer had sucked. **
+**It was the first day of 6th grade and, as was usual at the start of a new school year, they were being forced to talk about what they did over their summer vacation. That was the last thing she wanted to talk about. Sumer had sucked.**
 
 **Her parents had finally gotten a divorce. Which meant no more yelling at each other, not more silent dinners, and no more family. Her best friend, Steve, had tried to make her feel better by telling her she would have two Christmases, but that didn’t help.**
 
@@ -192,9 +192,9 @@ I wrinkled my nose at him. “I do not want my parents to wake up and ruin our p
 
 
 
-**Octavia took a deep breath and opened her eyes. The class was still there. She had hoped that somehow closing her eyes would have made them go away. Her eyes darted around the room and saw Mrs. Roger’s smile at her, encouraging her to start her talk. **
+**Octavia took a deep breath and opened her eyes. The class was still there. She had hoped that somehow closing her eyes would have made them go away. Her eyes darted around the room and saw Mrs. Roger’s smile at her, encouraging her to start her talk.**
 
-**It was the first day of 6th grade and, as was usual at the start of a new school year, they were being forced to talk about what they did over their summer vacation. That was the last thing she wanted to talk about. Summer had sucked. **
+**It was the first day of 6th grade and, as was usual at the start of a new school year, they were being forced to talk about what they did over their summer vacation. That was the last thing she wanted to talk about. Sumer had sucked.**
 
 **Her parents had finally gotten a divorce. Which meant no more yelling at each other, not more silent dinners, and no more family. Her best friend, Steve, had tried to make her feel better by telling her she would have two Christmases, but that didn’t help.**
 
@@ -220,9 +220,9 @@ She kicked at a stone; scraping her black toe nail. Part of it peeled off, leavi
 
 
 
-**Octavia took a deep breath and opened her eyes. The class was still there. She had hoped that somehow closing her eyes would have made them go away. Her eyes darted around the room and saw Mrs. Roger’s smile at her, encouraging her to start her talk. **
+**Octavia took a deep breath and opened her eyes. The class was still there. She had hoped that somehow closing her eyes would have made them go away. Her eyes darted around the room and saw Mrs. Roger’s smile at her, encouraging her to start her talk.**
 
-**It was the first day of 6th grade and, as was usual at the start of a new school year, they were being forced to talk about what they did over their summer vacation. That was the last thing she wanted to talk about. Summer had sucked. **
+**It was the first day of 6th grade and, as was usual at the start of a new school year, they were being forced to talk about what they did over their summer vacation. That was the last thing she wanted to talk about. Sumer had sucked.**
 
 **Her parents had finally gotten a divorce. Which meant no more yelling at each other, not more silent dinners, and no more family. Her best friend, Steve, had tried to make her feel better by telling her she would have two Christmases, but that didn’t help.**
 
@@ -246,9 +246,9 @@ Telling everybody her project, she grabbed all of her friends to join her in her
 
 
 
-**Octavia took a deep breath and opened her eyes. The class was still there. She had hoped that somehow closing her eyes would have made them go away. Her eyes darted around the room and saw Mrs. Roger’s smile at her, encouraging her to start her talk. **
+**Octavia took a deep breath and opened her eyes. The class was still there. She had hoped that somehow closing her eyes would have made them go away. Her eyes darted around the room and saw Mrs. Roger’s smile at her, encouraging her to start her talk.**
 
-**It was the first day of 6th grade and, as was usual at the start of a new school year, they were being forced to talk about what they did over their summer vacation. That was the last thing she wanted to talk about. Summer had sucked. **
+**It was the first day of 6th grade and, as was usual at the start of a new school year, they were being forced to talk about what they did over their summer vacation. That was the last thing she wanted to talk about. Sumer had sucked.**
 
 **Her parents had finally gotten a divorce. Which meant no more yelling at each other, not more silent dinners, and no more family. Her best friend, Steve, had tried to make her feel better by telling her she would have two Christmases, but that didn’t help.**
 
@@ -270,9 +270,9 @@ Mrs. Rogers turned her attention back to the wide
 
 
 
-**Octavia took a deep breath and opened her eyes. The class was still there. She had hoped that somehow closing her eyes would have made them go away. Her eyes darted around the room and saw Mrs. Roger’s smile at her, encouraging her to start her talk. **
+**Octavia took a deep breath and opened her eyes. The class was still there. She had hoped that somehow closing her eyes would have made them go away. Her eyes darted around the room and saw Mrs. Roger’s smile at her, encouraging her to start her talk.**
 
-**It was the first day of 6th grade and, as was usual at the start of a new school year, they were being forced to talk about what they did over their summer vacation. That was the last thing she wanted to talk about. Summer had sucked. **
+**It was the first day of 6th grade and, as was usual at the start of a new school year, they were being forced to talk about what they did over their summer vacation. That was the last thing she wanted to talk about. Sumer had sucked.**
 
 **Her parents had finally gotten a divorce. Which meant no more yelling at each other, not more silent dinners, and no more family. Her best friend, Steve, had tried to make her feel better by telling her she would have two Christmases, but that didn’t help.**
 
